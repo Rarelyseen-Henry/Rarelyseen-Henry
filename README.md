@@ -4,11 +4,17 @@
 - 💞️ I’m looking to collaborate on anything that concerns Design
 - 📫 How to reach me.
 Gmail: henryfrancis942@gmail.com
+
 Instagram: rarelyseen_henry
+
 Instagram: rarelyseen_henree
+
 Facebook Username: rarelyseen.henry
+
 Facebook Username: rarelyseen.henree
+
 Twitter: rarelyseen_henry
+
 Discord: rarelyseen-henry#3674
 
 <!---
